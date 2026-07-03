@@ -12,6 +12,6 @@ You can click the Preview link to take a look at your changes.
 Connect with me 
 https://www.instagram.com/tejas_dharamthok_/
 
-https://www.linkedin.com/in/tejas-dharamthok-329276245
+https://www.linkedin.com/in/tejas-dharamthok/
 
 https://twitter.com/tejasdharamthok?t=UnkPK5W7_J8NbVcdbefekw&s=08
